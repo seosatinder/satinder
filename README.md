@@ -1,0 +1,2 @@
+# satinder
+satinder randhawa blog
